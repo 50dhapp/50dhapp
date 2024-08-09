@@ -1,6 +1,6 @@
 - 👋 **50度灰  最新地址** 👋 
 - 👀 50度灰 永久地址（永久有效，谨防迷路，需翻墙）：https://50dh.app
-- 🌱 50度灰 最新下载地址（免翻墙，激情看片）： https://ash.elipqasti.org
+- 🌱 50度灰 最新下载地址（免翻墙，激情看片）： https://a0f5.uuxrzgqnf.me
 - 💞️ 50度灰回家邮箱，发送任意信息到邮箱 50du.dx0005@gmail.com
 即可收到最新下载地址
 - 📫 50度灰 官方TG：https://t.me/chuangzuo50dh
